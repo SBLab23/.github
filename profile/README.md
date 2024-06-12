@@ -1,4 +1,3 @@
-## Hi there 👋
 
 ## S. B. Computer Labs
 
